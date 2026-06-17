@@ -1,4 +1,4 @@
-PhD student in quantum many-body physics
+Quantum many-body physics
 
 
 
